@@ -25,7 +25,9 @@ https://edu-cisco.org/courses/devnet-python-apic-em/
 Академия Cisco на платформе SEDICOMM University: https://edu-cisco.org/
 
 Введение в DevOps / DevNet (Model-Driven Programmability): https://edu-cisco.org/courses/devnet-python-apic-em/
+
 DevOps / DevNet Associate: https://edu-cisco.org/courses/cisco-devnet-devops/
+
 Основы программирования Python / Programming Essentials in Python: https://edu-cisco.org/courses/python-programming-essentials
 
 Начните зарабатывать больше, освоив DevOps / DevNet обучение, DevOps / DevNet инженер обучение в Алматы, DevOps / DevNet обучение онлайн, обучение DevOps / DevNet с нуля, DevOps / DevNet engineer обучение, DevOps / DevNet обучение с нуля, обучение DevOps / DevNet инженер, обучение на DevOps / DevNet инженера, DevOps / DevNet с нуля обучение, обучение DevOps / DevNet онлайн, инженер DevOps / DevNet обучение, DevOps / DevNet инженер обучение, DevOps / DevNet бесплатное обучение, обучение DevOps / DevNet, обучение DevOps / DevNet engineer, DevOps / DevNet обучение Москва, обучение DevOps / DevNet онлайн бесплатно, курс обучения DevOps / DevNet, DevOps / DevNet обучения, DevOps / DevNet обучение бесплатно, обучение на DevOps / DevNet.
